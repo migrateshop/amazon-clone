@@ -2,7 +2,7 @@
 
 In today's digital age, establishing an ecommerce website has become more of a necessity than a choice for businesses looking to expand their reach and boost sales. With the increasing popularity of online shopping, having a robust online presence is crucial for attracting customers and staying ahead of the competition. However, building an [ecommerce website](https://migrateshop.com/online-shopping-website/) from scratch can be a daunting task, requiring extensive time, resources, and technical expertise. This is where our Amazon clone script comes in.
 
-Ready to explore the realm of ecommerce and establish your online store? Our [Amazon clone script](https://migrateshop.com/amazon-clone-script/) is designed to simplify and accelerate your startup process. With our script, you can develop a website mirroring Amazon's look and functionality, enabling you to reach customers worldwide and sell your products effortlessly.
+Ready to explore the realm of ecommerce and establish your online store? Our [Amazon clone script](https://migrateshop.com/amazon-clone/) is designed to simplify and accelerate your startup process. With our script, you can develop a website mirroring Amazon's look and functionality, enabling you to reach customers worldwide and sell your products effortlessly.
 
 Our Amazon clone script is here to help you get started quickly and easily. With our script, you can create a website that looks and functions just like Amazon, allowing you to sell products to customers around the world.  
  
@@ -13,7 +13,7 @@ Looking to establish an online presence that rivals the ecommerce giant Amazon? 
  
 Whether you're a startup or an established business, our script offers the flexibility and reliability you need to create a successful online store.
 
- [Migrateshop’s](https://migrateshop.com/) [Amazon clone](https://migrateshop.com/amazon-clone/) script is packed with features that make it easy to set up and manage your online store. Here are just a few reasons why you should choose our script:  
+ Migrateshop’s [Amazon clone](https://migrateshop.com/amazon-clone/) script is packed with features that make it easy to set up and manage your online store. Here are just a few reasons why you should choose our script:  
 
 **Easy to Use:** Our script is designed to be user-friendly, even for those with no technical experience. You can set up your store and start selling in no time.  
 
