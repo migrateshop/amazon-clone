@@ -47,7 +47,7 @@ Don't miss out on the opportunity to leverage the power of our Amazon clone scri
 
 Ready to launch your [ecommerce website](https://migrateshop.com/ecommerce-website-like-amazon/) with our Amazon clone script? Reach out to us today for more details and kick start your online store to cater to global customers!
 
-### Get Started Today with our Live Demo - https://migrateshop.com/ecommerce-website-like-amazon/
+### Get Started Today with our Live Demo - https://migrateshop.com/amazon-clone/#demo
 
 
 
